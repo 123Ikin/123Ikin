@@ -1,0 +1,5 @@
+- hallo gua ikin 
+- bantu gua agaar konsisten belajar programing 1 hari 2/3 jam minimal
+- harus konsisten belajar
+- ketika bisa programming, harus bvuat minimal 1 web
+- bantu gua terus maju dan belajar terus
